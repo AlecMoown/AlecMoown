@@ -1,5 +1,9 @@
 <img width="1280" height="115" alt="tumblr_c3d9209d67d24b4b7f59c1ac36426daf_1b100622_1280" src="https://github.com/user-attachments/assets/68080854-e663-425b-9b4b-56fbaf0c0b26" />
 <p align="center">
+ɑlες + ɯıll   ⋮  He/Him　
+  ◞　Yumeshipper+fictionkin
+</p>
+<p align="center">
 <img width="217" height="403" alt="image07 (3)" src="https://github.com/user-attachments/assets/1cb21a8b-439a-47e5-b854-efe6d4d9512d" /> <img width="345" height="345" alt="image06 (1)" src="https://github.com/user-attachments/assets/420d29b3-bc64-4288-ac90-6f8d3e73114d" /> <img width="217" height="403" alt="image07 (3)" src="https://github.com/user-attachments/assets/1cb21a8b-439a-47e5-b854-efe6d4d9512d" />
 </p>
 <p align="center">
